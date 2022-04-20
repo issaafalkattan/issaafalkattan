@@ -11,8 +11,3 @@ Some topics that interest me:
 [![trophy](https://github-profile-trophy.vercel.app/?username=ryo-ma)](https://github.com/issaafalkattan/github-profile-trophy)
 
 
-
-I love meeting and connecting with good people, so feel free to drop a call into my calendar if you think we should chat:
-https://calendly.com/issaaf-kattan/30min 🤙
-
-
